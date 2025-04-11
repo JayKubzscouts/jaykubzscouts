@@ -10,4 +10,10 @@
 - check my main for more of me!! mostly of it containing aot stuff
 - has terrible spelling and typos
 - _____________________________________________________________________
-# 
+# DNI LIST yay 
+- pr0sh!pp3rs  / d4rk ships or anything similar shoo shoo
+- zoophiles
+- ragebait ppl
+-problamatic creaters/ppl who supports them 
+- and more rgrg
+![Image](https://github.com/user-attachments/assets/a2d82af7-e1ae-432f-a7d4-b683cc2d9b36)
