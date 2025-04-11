@@ -1,4 +1,4 @@
-# - Hhhihihaihaihalooo      
+# - OH IN A BLINK GONE!!
 ![Image](https://github.com/user-attachments/assets/7f779ade-1028-47d0-a954-f7c143e69963)
 ![Image](https://github.com/user-attachments/assets/dd06b4ea-60bc-40ff-a3c3-6936749ce34c)
 
@@ -9,11 +9,13 @@
  - i only use this github for ponytown and nothing more.
 - check my main for more of me!! mostly of it containing aot stuff
 - has terrible spelling and typos
+- INT PLSPLS AOT FANS !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! *if  theyres any left*
 - _____________________________________________________________________
 # DNI LIST yay 
 - pr0sh!pp3rs  / d4rk ships or anything similar shoo shoo
 - zoophiles
-- ragebait ppl
--problamatic creaters/ppl who supports them 
+- ragebait 
+- problamatic creaters/ppl who supports them 
 - and more rgrg
+
 ![Image](https://github.com/user-attachments/assets/a2d82af7-e1ae-432f-a7d4-b683cc2d9b36)
