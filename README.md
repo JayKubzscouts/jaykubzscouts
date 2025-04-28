@@ -1,26 +1,12 @@
-# - average sirmixalot listener uhghf
-![Image](https://github.com/user-attachments/assets/7f779ade-1028-47d0-a954-f7c143e69963)
-![Image](https://github.com/user-attachments/assets/dd06b4ea-60bc-40ff-a3c3-6936749ce34c)
-
-# INFO  -  
-- mostly afk / offtab!! i dont mind c+h. 
-- big aot and jay fan  / other fandoms too
-- very active but often is not
- - i only use this github for ponytown and nothing more.
-- check my main for more of me!! mostly of it containing aot stuff
-- has terrible spelling and typos
-- INT PLSPLS AOT FANS !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! *if  theyres any left*
-- TYPES IN CAPS
-- yes i still watch cartoons and wierd red and yellow larvas fighting over food. / more
-- I  FW EVERYONE especially my friends bmf 
-- very friednly int please when im not inactive, i dont bite !!
-- silly 
-- _____________________________________________________________________
-# DNI LIST yay 
-- pr0sh!pp3rs  / d4rk ships or anything similar shoo shoo
-- zoophiles
-- ragebait 
-- problamatic creaters/ppl who supports them 
-- and more rgrg basic citeria
-
-![Image](https://github.com/user-attachments/assets/a2d82af7-e1ae-432f-a7d4-b683cc2d9b36)
+# hi fellow ninjas
+![Image](https://github.com/user-attachments/assets/f018fcb8-0b2c-4265-86b5-37debed63577)
+# hi ,. im a bag fan of :
+- silent voice
+- naruto 
+- aot 
+- jjk 
+- jay ,.. cory / ytubers toh
+- other munlisted movies and anime/s ..
+*( pleaseplease bmf if you like any of these </3 )*
+![Image](https://github.com/user-attachments/assets/d0bd58d6-9866-4b13-8c2c-ef51f6ede66e)
+# - PLAY WITH FIRE CUZ!!!! ULL NEVER TAKE US ALIVEEEE 
