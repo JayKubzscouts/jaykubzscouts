@@ -5,8 +5,8 @@
 - naruto 
 - aot 
 - jjk 
-- jay ,.. cory / ytubers toh
-- other munlisted movies and anime/s ..
+- jay ,.. cory / ytubers toh | evbo n seawatt my peaks
+- other munlisted movies and anime/s .. games too!! 
 *( pleaseplease bmf if you like any of these </3 )*
 ![Image](https://github.com/user-attachments/assets/d0bd58d6-9866-4b13-8c2c-ef51f6ede66e)
 # - follow me for free ramen and .. frog 
