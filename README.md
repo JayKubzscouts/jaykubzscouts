@@ -1,12 +1,8 @@
-# hi fellow ninjas
-![Image](https://github.com/user-attachments/assets/f018fcb8-0b2c-4265-86b5-37debed63577)
-# hi ,. im a bigback  fan of :
-- silent voice
-- naruto 
-- aot 
-- jjk 
-- jay ,.. cory / ytubers toh | evbo n seawatt my peaks
-- other munlisted movies and anime/s .. games too!! 
-*( pleaseplease bmf if you like any of these </3 )*
-![Image](https://github.com/user-attachments/assets/d0bd58d6-9866-4b13-8c2c-ef51f6ede66e)
-# - follow me for free ramen and .. frog 
+# spams you with the evbolingz
+
+![Image](https://github.com/user-attachments/assets/4bcf54db-6113-42cd-9421-fcf7383c9207)
+![Image](https://github.com/user-attachments/assets/e0a55835-a07a-40af-a28f-ef00d2c8f680)
+![Image](https://github.com/user-attachments/assets/84dad79d-43b4-4b5b-9fb4-3b571026921f)
+![Image](https://github.com/user-attachments/assets/aa4e160d-4718-4e01-b311-f44b62bcef28)
+
+![Image](https://github.com/user-attachments/assets/4b13b9a2-6d69-4077-8e5c-1bf7dc7261b0)
