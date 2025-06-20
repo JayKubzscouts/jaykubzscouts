@@ -1,4 +1,4 @@
-# spams you with the evbolingz
+# hi i love if you sign any of my socials pleasplease bmf 
 
 ![Image](https://github.com/user-attachments/assets/4bcf54db-6113-42cd-9421-fcf7383c9207)
 
