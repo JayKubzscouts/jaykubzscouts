@@ -16,7 +16,8 @@ $${\color{red}"In \space \color{grey}Another \space \color{blue}{Universe."}}$$
 
 
 
-
+<p align="center">  "Yenn you didnt credit to the artist you put on your readme!!" IT'S MYY ART, now stop attacking my ata. Any negative comments will be hidden / deleted </p>
+<p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
