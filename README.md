@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="500" height="500" src="https://github.com/user-attachments/assets/d08e6d81-4cdd-4d9f-8daf-29c109ed2159">
+  <img width="600" height="800" src="https://github.com/user-attachments/assets/309f9713-a657-4434-b96f-43f37add0ae3">
 </p>
 
 
@@ -9,7 +9,7 @@
 <p>
 
 
-$${\color{red}"In \space \color{grey}Another \space \color{blue}{Universe."}}$$
+$${\color{red}"Poet \space \color{yellow}King \space \color{blue}{Soilde."}}$$
 
  <p align="center">   ▶︎ •၊၊||၊|။||||။⁠၊|• 0:10 </p>
 <p>
