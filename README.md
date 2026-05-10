@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="400" src="https://github.com/user-attachments/assets/c04eded9-8dea-464d-a5dc-3e40ed9f683a">
+  <img width="400" src="https://github.com/user-attachments/assets/682c2c0a-7b35-41a4-846a-941b85e7178b">
 </p>
 
 
@@ -31,7 +31,7 @@
 
 
 
- <p align="center">  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  I LOVE SHOKO  </p>
+ <p align="center">  ♥︎  </p>
 <p>
 
 
