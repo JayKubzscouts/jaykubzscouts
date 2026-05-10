@@ -31,7 +31,7 @@
 
 
 
- <p align="center">  ♥︎  </p>
+ <p align="center">  don't copy my skins! feel free to take inspo though.  </p>
 <p>
 
 
